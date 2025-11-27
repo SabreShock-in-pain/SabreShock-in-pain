@@ -1,6 +1,6 @@
 - Hi, I’m @SabreShock-in-pain
 - I’m interested in ... Backend and frontend, games, books, lore,
-  cool or interesting media and games and Im planning on building model kits soon, Im also a avid gym goer.
+  cool or interesting media and games and ive built several gundam kits, Im also a avid gym goer.
 - I’m currently learning ... a lot
 - I’m looking to collaborate on ... (no clue)
 - How to reach me ... SabreShock19@gmail.com
